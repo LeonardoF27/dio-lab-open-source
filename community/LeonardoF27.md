@@ -1,7 +1,7 @@
 ### Olá! Eu sou o Leonardo 👋
 Atualmente estou cursando ADS e consiliando com o curso do DIO, sempre em contate evoluç~çao buscando cadâ dia mais conhecimento.🔍💻📚
 
-Aqui está um pouco do meu projeto e do que estou estudando.👇🚀
+Aqui está um pouco do meu projeto e do que estou estudando👇🚀
 
 ### Contato
 
